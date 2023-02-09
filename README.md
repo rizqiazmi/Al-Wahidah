@@ -1,3 +1,2 @@
 # Al-Wahidah
-1. Perusahaan Studio Recording Musik Gresik
-2. Nama Group Musik Gambus Modern Gresik
+Gambus Qasidah berasal dari bahasa arab yang artinya nyanyian. namun maksud qasidah berikutnya menunjuk pada lagu serta musik dengan khasnya, yaitu lagu dengan syair-syair bertemakan agama Islam atau da’wah Islam. Qasidah pun memunculkan kesenian dengan alat musiknya yang paling utama adalah rebana, kecrek dan sebagaiya. Qasidah terdiri dari lima atau enam orang dalam memainkan berbagai ukuranalatnya dari yang kecil hingga rebana yang besar ditambah dengan alat kecrek. Pada perkembangan berikutnya qasidah dapat dimainkan menggunakan alat kesenian lainnya sesuai dengan keterampilan seniman itu sendiri.
